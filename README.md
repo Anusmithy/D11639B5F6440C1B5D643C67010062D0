@@ -12,4 +12,5 @@ https://www.facebook.com/61551855518396/posts/122105298350061850/?mibextid=rS40a
 https://cricchronicles.blogspot.com/2023/09/email-newsletter-cricket-spotlight.html
 Infographics blogger link
 https://cricchronicles.blogspot.com/2023/09/infographics-cricket-strategies-winning.html
-
+Data Analytics Measurement
+G-RQEQ7VYKHZ
